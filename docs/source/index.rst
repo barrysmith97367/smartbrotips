@@ -1,5 +1,7 @@
 Brother Printer Offline? Here’s How to Fix It Fast!
 ===================================
+`Click Here: Get the Live Brother Printer Support <https://jivo.chat/QjFUnjXqRy>`
+
 
 Dial 1-888-966-6097 Is your Brother printer showing offline when you try to print an important document? Don’t worry—you’re not alone. This is one of the most common printer issues users face across Windows and Mac devices. In this guide, we’ll walk you through quick fixes, causes, and long-term solutions to bring your Brother printer back online.
 
